@@ -1,0 +1,5 @@
+- 👋 Salve cachorro, é o taldo tobias.vargas@escola.pr.gov.br vulgo xita e naum é pouco
+- 👀 Estou interessado em placo
+- 🌱 To aprendendo a dar aula
+- 💞️ Procuro colaborar com as pedagoga
+- 📫 Como chegar em mim: chama no zap bb: 99120-3535
